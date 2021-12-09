@@ -1,0 +1,1 @@
+# satoshiyamadachi.github.io
